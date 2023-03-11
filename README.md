@@ -1,1 +1,1 @@
-# Wiki
+[**Amerithrax**](amerithrax) </br>
